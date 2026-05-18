@@ -1,16 +1,64 @@
-## Hi there 👋
+# #Info! ˖ ࣪⊹๋࣭ ⭑    ⋆⭒˚.⋆
 
-<!--
-**Zeno-Zenzen/Zeno-Zenzen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+WELLCOME TO MY GITHUB!
 
-Here are some ideas to get you started:
+the things you need to know about me for now!. >:3
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
+
+<img width="692" height="388" alt="Imagine Animes   PEDIDOS FECHADOS" src="https://github.com/user-attachments/assets/b5621ce6-8492-4831-a3af-e8a7a3b8b1fa" />
+
+                              " Everthing goes on like nothing happend. "
+
+:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
+
+# #warning. ˖ ࣪⊹๋࣭ ⭑    ⋆⭒˚.⋆
+
+I do not support.. :
+
+Racism: Color of skin doesn't matter!. , we all bleed the same blood , all of our blood is RED!.
+
+misogyny and misandry: this people just hates each other..-
+
+homophobic or any hatred in lgbtq+: sometimes people that doesn't supports people who are in lgbtq can keep their own opinion themselves.. because sometimes it hurts someone else's feelings , but if it's by anychance about religion I can accept that , if they truly love each other and they will sacrifice for each other that means they truly and deeply love each other
+
+zoophilia: please do not sexualize animals.. , I mean like they're animals.. , they don't even know what or why your thinking some things that are dirty..
+
+Ai art maker , art tracer : just.. ,just pick up a pencil , and then for those tracers PRACTICE.
+
+# #about me! >:3 ˖ ࣪⊹๋࣭ ⭑    ⋆⭒˚.⋆
+
+:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
+
+<img width="735" height="245" alt="3817615d3824d0ee5bd5c5716e45a240" src="https://github.com/user-attachments/assets/b86d1f5c-0714-43a6-b793-520767b7221e" />
+ ILYSM FOR REACHING THIS FAR!
+
+:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
+
+I AM A MINOR!.
+
+#Filipino! , pipino. from the philippines!
+
+you can call me in any nickname but you can call me Zen! :3
+
+I like drawing , playing roblox , tamodachi living the dream!. 
+
+in roblox I mostly play jjs or jujutsu beatdown , you can add me in roblox too btw!. 
+
+I am mostly on 3pm or 4pm but prob in the weekends/summer cus I'm trying to limit myself from using the computer since my dad called me an addict lol (no abuse btw!)
+I'm sorry if were not in the same time line ;-;
+
+you can DM and btw don't forget to tell me the things your uncofortable with so I can avoid doing it!
+
+:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
+
+<img width="736" height="414" alt="d57b799dd33e2b92f418797b0d8162cd" src="https://github.com/user-attachments/assets/b4c129cb-2051-408a-9f0f-3dc8ecfbe918" />
+" right sensei?. "
+
+                                                           " sensei?. "
+
+:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
+
+# BYE BYE POOKS!!˖ ࣪⊹๋࣭ ⭑    ⋆⭒˚.⋆
+
+ILYSM FO REACHING THIS FARR!! (might update.)
