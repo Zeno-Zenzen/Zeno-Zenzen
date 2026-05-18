@@ -6,7 +6,8 @@ the things you need to know about me for now!. >:3
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
 
-<img width="692" height="388" alt="Imagine Animes   PEDIDOS FECHADOS" src="https://github.com/user-attachments/assets/b5621ce6-8492-4831-a3af-e8a7a3b8b1fa" />
+<img width="692" height="388" alt="Imagine Animes   PEDIDOS FECHADOS" src="https://github.com/user-attachments/assets/ce697c9c-6199-4c46-b656-7518701cf880" />
+
 
                               " Everthing goes on like nothing happend. "
 
@@ -30,7 +31,7 @@ Ai art maker , art tracer : just.. ,just pick up a pencil , and then for those t
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
 
-<img width="735" height="245" alt="3817615d3824d0ee5bd5c5716e45a240" src="https://github.com/user-attachments/assets/b86d1f5c-0714-43a6-b793-520767b7221e" />
+<img width="735" height="245" alt="3817615d3824d0ee5bd5c5716e45a240" src="https://github.com/user-attachments/assets/2df3ff4c-6990-4f88-808a-be030c1d4db1" />
  ILYSM FOR REACHING THIS FAR!
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
@@ -52,7 +53,7 @@ you can DM and btw don't forget to tell me the things your uncofortable with so 
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
 
-<img width="736" height="414" alt="d57b799dd33e2b92f418797b0d8162cd" src="https://github.com/user-attachments/assets/b4c129cb-2051-408a-9f0f-3dc8ecfbe918" />
+<img width="736" height="414" alt="d57b799dd33e2b92f418797b0d8162cd" src="https://github.com/user-attachments/assets/010f8b1a-2f21-4617-82ca-b30f2a63fdbe" />
 " right sensei?. "
 
                                                            " sensei?. "
