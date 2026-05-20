@@ -40,8 +40,6 @@ I AM A MINOR!.
 
 #Filipino! , pipino. from the philippines!
 
-you can call me in any nickname but you can call me Zen! :3
-
 I like drawing , playing roblox , tamodachi living the dream!. 
 
 in roblox I mostly play jjs or jujutsu beatdown , you can add me in roblox too btw!. 
@@ -50,6 +48,7 @@ I am mostly on 3pm or 4pm but prob in the weekends/summer cus I'm trying to limi
 I'm sorry if were not in the same time line ;-;
 
 you can DM and btw don't forget to tell me the things your uncofortable with so I can avoid doing it!
+
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
 
