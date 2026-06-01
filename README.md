@@ -27,6 +27,15 @@ zoophilia: please do not sexualize animals.. , I mean like they're animals.. , t
 
 Ai art maker , art tracer : just.. ,just pick up a pencil , and then for those tracers PRACTICE.
 
+:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
+# #I Int with!
+
+Any age! but mostly (15 below but high number is alright!)
+
+mulishipper is fine! (cus I am one too :3)
+
+:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
+
 # #about me! >:3 ˖ ࣪⊹๋࣭ ⭑    ⋆⭒˚.⋆
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
@@ -36,18 +45,16 @@ Ai art maker , art tracer : just.. ,just pick up a pencil , and then for those t
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
 
-I AM A MINOR!.
+I like drawing , listening to music , playing roblox , tamodachi living the dream!. , jujutsu kaisen phantom parade
 
-#Filipino! , pipino. from the philippines!
+in roblox I mostly play jjs or jujutsu beatdown and jujutsu Zero , you can add me in roblox too btw!. 
 
-I like drawing , playing roblox , tamodachi living the dream!. 
+                           basicaly I'm addicted to jujutsu kaisen ;-;.
 
-in roblox I mostly play jjs or jujutsu beatdown , you can add me in roblox too btw!. 
+I am mostly on 5pm or 6pm but prob in the weekends/summer cus I'm trying to limit myself from using the computer since my dad called me an addict lol (no abuse btw!)
+I'm sorry if were not in the same time zone ;-;
 
-I am mostly on 3pm or 4pm but prob in the weekends/summer cus I'm trying to limit myself from using the computer since my dad called me an addict lol (no abuse btw!)
-I'm sorry if were not in the same time line ;-;
-
-you can DM and btw don't forget to tell me the things your uncofortable with so I can avoid doing it!
+more info?: https://t0x1cwast3.straw.page/
 
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
