@@ -51,9 +51,6 @@ in roblox I mostly play jjs or jujutsu beatdown and jujutsu Zero , you can add m
 
                            basicaly I'm addicted to jujutsu kaisen ;-;.
 
-I am mostly on 5pm or 6pm but prob in the weekends/summer cus I'm trying to limit myself from using the computer since my dad called me an addict lol (no abuse btw!)
-I'm sorry if were not in the same time zone ;-;
-
 more info?: https://t0x1cwast3.straw.page/
 
 
