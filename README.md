@@ -1,10 +1,3 @@
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wocjowpl2uyzaesjgvozqrul3q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=f41f4a&bar_color_cover=true">
-  </a>
-</p>
-
-
 
 # #Info! ˖ ࣪⊹๋࣭ ⭑    ⋆⭒˚.⋆
 
@@ -73,4 +66,11 @@ more info?: https://t0x1cwast3.straw.page/
 
 # BYE BYE POOKS!!˖ ࣪⊹๋࣭ ⭑    ⋆⭒˚.⋆
 
-ILYSM FO REACHING THIS FARR!! (might update.)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wocjowpl2uyzaesjgvozqrul3q&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=53b14f&bar_color_cover=false&mode=dark">
+  </a>
+</p>
+
+
+                                            ILYSM FO REACHING THIS FARR!! (might update.)
