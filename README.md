@@ -1,16 +1,15 @@
-
 # #Info! ˖ ࣪⊹๋࣭ ⭑    ⋆⭒˚.⋆
-
+<p align="center">
 WELLCOME TO MY GITHUB!
-
+<p align="center">
 the things you need to know about me for now!. >:3
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
-
+<p align="center">
 <img width="692" height="388" alt="Imagine Animes   PEDIDOS FECHADOS" src="https://github.com/user-attachments/assets/ce697c9c-6199-4c46-b656-7518701cf880" />
 
-
-                              " Everthing goes on like nothing happend. "
+<p align="center">
+ " Everthing goes on like nothing happend. "
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
 
@@ -40,9 +39,9 @@ mulishipper is fine! (cus I am one too :3)
 # #about me! >:3 ˖ ࣪⊹๋࣭ ⭑    ⋆⭒˚.⋆
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
-
+<p align="center">
 <img width="735" height="245" alt="3817615d3824d0ee5bd5c5716e45a240" src="https://github.com/user-attachments/assets/2df3ff4c-6990-4f88-808a-be030c1d4db1" />
- ILYSM FOR REACHING THIS FAR!
+
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
 
@@ -50,17 +49,16 @@ I like drawing , listening to music , playing roblox , tamodachi living the drea
 
 in roblox I mostly play jjs or jujutsu beatdown and jujutsu Zero , you can add me in roblox too btw!. 
 
-                           basicaly I'm addicted to jujutsu kaisen ;-;.
-
+basicaly I'm addicted to jujutsu kaisen ;-;.
+<p align="center">
 more info?: https://t0x1cwast3.straw.page/
 
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
-
+<p align="center">
 <img width="736" height="414" alt="d57b799dd33e2b92f418797b0d8162cd" src="https://github.com/user-attachments/assets/010f8b1a-2f21-4617-82ca-b30f2a63fdbe" />
-" right sensei?. "
-
-                                                           " sensei?. "
+<p align="center">
+" sensei?. "
 
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
 
@@ -68,9 +66,10 @@ more info?: https://t0x1cwast3.straw.page/
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wocjowpl2uyzaesjgvozqrul3q&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=53b14f&bar_color_cover=false&mode=dark">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wocjowpl2uyzaesjgvozqrul3q&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=true&bar_color=53b14f">
   </a>
 </p>
 
+<p align="center">
+ ILYSM FO REACHING THIS FARR!! (might update.)
 
-                                            ILYSM FO REACHING THIS FARR!! (might update.)
